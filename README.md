@@ -1,3 +1,10 @@
+
 # Samarth-Wave9
-Basavaraj
-Akanksha
+
+
+- Akanksha
+
+- Basavaraj
+- Vyshakh E
+- Kishanlal BJ
+- Karthikeyan
